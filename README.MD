@@ -1,0 +1,1 @@
+Hello! this is the recipe of a dish that most of us like, yes its a burger. This is not a ordinary type of burger its the tastiest burger on the earth. This recipie was told by some wise sage a thousand years ago,but back then it was scrapped on a leaf but in the tech years it s in a form of a code. hope you find this recipie tasty , share it with friends and family. 
